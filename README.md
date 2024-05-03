@@ -1,0 +1,1 @@
+If you do not know what connection is, it is a game that you can play on nytimes where you match the words with the catergories, and then you get a new one every-day, here is the link to play it on nytimes.com: https://www.nytimes.com/games/connections
